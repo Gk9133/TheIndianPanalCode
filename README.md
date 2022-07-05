@@ -1,1 +1,1 @@
-# TheIndianPanalCode
+# TheIndianPenalCode
